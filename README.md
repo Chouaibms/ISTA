@@ -1,2 +1,0 @@
-# ISTA-SM
-ISTA-SM
